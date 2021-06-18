@@ -1,3 +1,2 @@
 # hdakwrnaudep26
-
-This is IAI twenty six
+This is WRN! Audio Episode 26
